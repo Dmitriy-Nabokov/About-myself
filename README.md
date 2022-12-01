@@ -8,5 +8,4 @@ I like to study and get new knowledge there.
 
 _To be continued..._
 
-file:///C:/Users/MABLUNG/Desktop/MG_4908.jpg
 
